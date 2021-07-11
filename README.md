@@ -1,5 +1,5 @@
 ### Hi there 👋
-#### We believe that every little bit helps 🐌
+#### We believe that many a little makes a miracle! ✨
 
 
 <!--
