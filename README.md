@@ -1,5 +1,5 @@
 ### Hi there 👋
-#### We believe that many a little makes a miracle! ✨
+#### I believe that many a little makes a miracle! ✨
 
 
 <!--
